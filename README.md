@@ -8,6 +8,4 @@ Links linkedin & instagram:
 
 https://www.linkedin.com/company/union-nt-u-pokretu/about/
 
-https://www.instagram.com/unionntupokretu/ 
-
 Language: Serbian
